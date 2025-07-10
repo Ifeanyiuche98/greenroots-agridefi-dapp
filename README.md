@@ -128,6 +128,6 @@ Email: ifeanyiraymonduche98@gmail.com
 
 Telegram: @bunt789
 
-Twitter: @Ifeanyi22324210
+X: @Ifeanyi22324210
 
 
